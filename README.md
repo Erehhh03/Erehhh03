@@ -2,6 +2,8 @@
 
 I am a freshman BSIT student :snowflake:
 
+📖 Currently learning in Information Technology 
+
 I love to watch ANIME :star: and COSPLAY :fire:
 
 <!---
