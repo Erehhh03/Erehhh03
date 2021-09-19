@@ -1,4 +1,4 @@
-- # Yo Minna~ :wave:
+- # Hello~ :wave:
 
 I am a freshman BSIT student :snowflake:
 
